@@ -5,7 +5,7 @@
 I'm Berat.
 developer from Ankara, Turkiye.
 
-
+- 📫 How to reach me: You can reach me on Discord, discord address: xBerat#6083
 
 
 
