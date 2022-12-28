@@ -1,7 +1,7 @@
 ### Hi there , I am Berat👋
 
 
-Welcome to my page!
+:gift_heart: Welcome to my page!
 I'm Berat.
 developer from Ankara, Turkiye.
 
