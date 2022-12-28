@@ -1,4 +1,19 @@
-### Hi there 👋
+### Hi there , I am Berat👋
+
+
+Welcome to my page!
+I'm Berat.
+developer from Ankara, Turkiye.
+
+
+
+
+
+
+
+
+
+
 
 <!--
 **xBeratE/xBeratE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
