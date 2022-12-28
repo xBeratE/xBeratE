@@ -7,6 +7,7 @@ developer from Ankara, Turkiye.
 
 - 📫 How to reach me: You can reach me on Discord, discord address: xBerat#6083
 
+- ⚡ Fun fact: it was always my ideas and my actions that were best. 💯
 
 
 
